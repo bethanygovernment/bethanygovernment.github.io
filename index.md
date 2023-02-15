@@ -69,3 +69,10 @@ If you have feedback or questions email [brandon@bethanygovernment.org](mailto:b
 - [Cedar Mill News](https://cedarmillnews.com)
 - [Beaverton Valley Times](https://pamplinmedia.com/beaverton-valley-times-home/)
 - [Patch Beaverton News](https://patch.com/oregon/beaverton) 
+
+## Protecting our Community
+
+An unfortunate side effect of being in an unincorporated area is the community has fairly poorly designed land use laws. This has led to some very unfortunate community planning decisions that the community is trying to fix:
+
+- An approved gas station which will [store 40,000 gallons of gasoline 80ft](https://nabgas.com) from the Rock Creek trail and wetland feeding Bethany Lake by developer [Bob Barman](https://bobbarman.com) - [Sign the petition](https://www.postpump.org/oregon/washington-county/land-use-letter)
+- Unlike many cities in the area we have no tree protection code to encourage and protect space to keep large trees during a development. The [Treekeepers of Washington County](https://www.treekeeperswc.org) are working to fix that.
